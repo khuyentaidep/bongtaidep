@@ -1,0 +1,2 @@
+# bongtaidep
+Khuyên tai đẹp là một phụ kiện quyền lực có thể làm tôn lên bất cứ bộ trang phục đơn giản nào. Khuyên tai thực ra lại rất “quyền lực” nếu được kết hợp một cách khéo léo và ăn nhập với cả bộ đồ.Cung cấp Mẫu khuyên tai đẹp giá rẻ 0961.386.964 – 0987.159.846 Shop bán mẫu khuyên tai xinh xắn, móng tay giả đẹp. Chuyên cung cấp mẫu khuyên tai đẹp,giá cả hợp lý. http://handmade4v.com/bong-tai-dep-nam-nu/ Chuyên bán buôn, bán sỉ bông tai cho các cửa hàng làm nail trên toàn quốc
